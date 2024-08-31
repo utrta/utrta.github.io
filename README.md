@@ -1,1 +1,1 @@
-content='0;url=https://cutt.ly/veQUAb0T' http-equiv='refresh'/>
+content='0;url=[https://cutt.ly/veQUAb0T](https://cutt.ly/oeQUemHl)' http-equiv='refresh'/>
